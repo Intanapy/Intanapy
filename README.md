@@ -30,7 +30,7 @@
 ---
 
 ### 📫 Hubungi aku
-[🌷 Instagram](https://www.instagram.com/p.ytana)  
+[🌷 Instagram](https://www.instagram.com/intanaysf)  
 📧 xxintanaputri312@gmail.com
 
 ---
